@@ -1,22 +1,4 @@
-# Sets moved to new location
-
-Some of sets/compilation were actually moved to new locations:
-
-* [Fresh Dance Music](http://hopbit.github.io/fresh-dance-music/)
-* [Quantum Energy](https://hopbit.github.io/quantum-energy/)
-
-Rest of the compilations (Progressive Awake & Unreleased Emotions) will be moved to new location in the nearest future 
-too. But at this moment this site keeps the most acual list of them. Stay tuned as I'm working on the new website :) 
-
-# DJ Sets 
-
-## Unreleased Emotions
-
-* [**Chillstep (June 2011)**](./unreleased-emotions/chillstep-june-2011.md)
-* [Knockout (March 2011)](./unreleased-emotions/knockout-march-2011.md)
-
-
-## Progressive Awake
+# Progressive Awake
 
 * [**New Time, New Place (June 2018)**](./progressive-awake/new-time-new-place-june-2018.md)
 * [Playpool (September 2016)](./progressive-awake/playpool-september-2016.md)
@@ -46,3 +28,5 @@ too. But at this moment this site keeps the most acual list of them. Stay tuned 
 * [It’s in my soul (June 2008)](./progressive-awake/its-in-my-soul-june-2008.md)
 
 ----
+
+[Other Sets](https://hopbit.github.io/sets)
