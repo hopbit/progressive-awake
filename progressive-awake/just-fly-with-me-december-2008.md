@@ -5,9 +5,11 @@
 Date: 2008-12-19 22:15  
 Tags: progressive house  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4VGdUYmI4THQ0S3c)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIU2JGanRxaWRyMGM)
+[![Progressive Awake](https://www.mixcloud.com/progressiveawake/just-fly-with-me-december-2008/)
 
-[DOWNLOAD (92MB, 1h 6min)](https://drive.google.com/file/d/0B_4_ynm06YZIU2JGanRxaWRyMGM/edit?usp=sharing)
+* [DOWNLOAD (92MB, 66min)](https://1drv.ms/u/s!AmzuuXrjf51v2LIoA_hBim6B03zAXw?e=vd3pBm)
+* [SOUNDCLOUD](https://soundcloud.com/progressive-awake/just-fly-with-me-december-2008)
+* [MIXCLOUD](https://www.mixcloud.com/progressiveawake/just-fly-with-me-december-2008/)
 
 TRACKLIST:  
 
@@ -24,4 +26,5 @@ TRACKLIST:
 - uwe worlitzer – fly with me (vids rmx)
 
 All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
+You can listen them on <a href="https://open.spotify.com/playlist/2t2d8XXigBzIN9VVOZUTm6?si=cZPU3beYQZqZHL-nrxaA4g">Spotify</a> as well. 
 Enjoy.
