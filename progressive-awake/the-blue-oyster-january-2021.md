@@ -10,6 +10,9 @@ Tags: *#progressive* *#deep* *#house* *#melodic* *#techno* *#blue* *#oyster*
 * [**Watch on FACEBOOK**](https://www.facebook.com/watch/live/?v=221702099632503)
 * [**Listen at MIXCLOUD**](https://www.mixcloud.com/progressiveawake/the-blue-oyster-january-2021/)
 * [**Watch on YouTube**](https://www.youtube.com/watch?v=aSDdmffHZeQ)
+
+Session was hosted live on January 8, 2021 by [**The Blue Oyster**](https://www.facebook.com/theblueoystertv/). You can watch more streams/dj steas on their [YouTube](https://www.youtube.com/channel/UCFjkqsn6LjObwvH7dFMF-Zw) channel.
+
  
 Enjoy & support artists by buying their music or by listening using 
 [Spotify](https://open.spotify.com/user/hopbit/playlist/2t2d8XXigBzIN9VVOZUTm6?si=Xq1rzbIOSISla_sx27XGnQ).
