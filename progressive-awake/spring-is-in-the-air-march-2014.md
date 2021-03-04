@@ -5,12 +5,10 @@
 Date: 2014-03-19 22:00  
 Tags: progressive house  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4YlJ4RVJLUWU4R3c)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZINzAwSTFZNlJIcVk)
+[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4YlJ4RVJLUWU4R3c)](https://soundcloud.com/progressive-awake/spring-is-in-the-air-march-2014)
 
-<!-- DOWNLOAD LINK -->
-[**DOWNLOAD LINK**](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZINzAwSTFZNlJIcVk)
-
-[LISTEN @ SOUNDCLOUD](https://soundcloud.com/progressive-awake/spring-is-in-the-air-march-2014)
+* [**Listen on SOUNDCLOUD](https://soundcloud.com/progressive-awake/spring-is-in-the-air-march-2014)
+* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v2LMAHf6Z2rZ6N9s4Ug)
 
 Tracklist:
 
