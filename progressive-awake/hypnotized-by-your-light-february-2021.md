@@ -7,8 +7,8 @@ Tags: *#progressive* *#house* *#electronica* *#melodic* *#techno* *#trance*
   
 [![Hypnotized By Your Light (February 2021)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/c/7/0/0/e6dd-73f7-48e2-87e6-2230a89f2d7d)](https://www.mixcloud.com/progressiveawake/hypnotized-by-your-light-february-2021/)  
 
-* [**Listen at MIXCLOUD**](https://www.mixcloud.com/progressiveawake/hypnotized-by-your-light-february-2021/)
-* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v35sYqy8GHPfa8N1tOg?e=FiQURO)
+* [**Listen at MIXCLOUD**](https://www.mixcloud.com/progressiveawake/hypnotized-by-your-light-february-2021/) 
+* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v35sYqy8GHPfa8N1tOg?e=FiQURO) 
 
 * Adrieno Rossy - Deeper Mind (Extended Mix)
 * Joachim Pastor - Eternity (Original Mix)
