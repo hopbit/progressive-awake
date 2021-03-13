@@ -26,6 +26,9 @@ Tracklist:
 
 Enjoy & support artists by [buying their music](http://www.junodownload.com/charts/mixcloud/progressiveawake/playpool-september-2016/495514471)!
 
+
 ----
 
-[Back to mainpage](../README.md)
+[**BACK TO MAIN PAGE**](../README.md)
+
+---- 
