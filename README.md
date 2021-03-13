@@ -4,7 +4,8 @@
 
 # Sets
 
-* [**The Blue Oyster (January 2021)**](./progressive-awake/the-blue-oyster-january-2021.md)
+* [**Hypnotized By Your Light (February 2021)**](./hypnotized-by-your-light-february-2021.md)
+* [The Blue Oyster (January 2021)](./progressive-awake/the-blue-oyster-january-2021.md)
 * [New Time, New Place (June 2018)](./progressive-awake/new-time-new-place-june-2018.md)
 * [Playpool (September 2016)](./progressive-awake/playpool-september-2016.md)
 * [Uncharted Waters (June 2015)](./progressive-awake/uncharted-waters-june-2015.md)
