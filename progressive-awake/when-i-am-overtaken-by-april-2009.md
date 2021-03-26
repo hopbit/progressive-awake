@@ -5,9 +5,11 @@
 Date: 2009-04-16  
 Tags: progressive house, techno, dance    
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4NmQyY3RaeDRwZWs)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIZF9ZMzhfcFc4NDA)
+[![Progressive Awake](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/d/6/5/d/8ee1-87ad-4738-bfcb-50695b62ed0a)](https://www.mixcloud.com/progressiveawake/when-i-am-overtaken-by-april-2009/)
 
-[**DOWNLOAD (58MB, 63min)**](https://drive.google.com/file/d/0B_4_ynm06YZIZF9ZMzhfcFc4NDA/edit?usp=sharing)
+[**Listen on MIXCLOUD](https://www.mixcloud.com/progressiveawake/when-i-am-overtaken-by-april-2009/)
+[**Download MP3 (58MB, 63min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LI5ecFnxFl0NWI2Wg?e=Vo0Wm6)
+
 
 TRACKLIST:  
 
@@ -26,3 +28,9 @@ TRACKLIST:
 
 All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
 Enjoy.
+
+----
+
+[**BACK TO MAIN PAGE**](../README.md)
+
+---- 
