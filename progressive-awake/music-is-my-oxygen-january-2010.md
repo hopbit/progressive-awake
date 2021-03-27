@@ -5,9 +5,9 @@
 Date: 2010-01-05    
 Tags:  dance, progressive house, tech house, techno    
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4bTlrSklwREZxQXM)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIOF9nRThwLWstaWc)
+[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4bTlrSklwREZxQXM)](https://1drv.ms/u/s!AmzuuXrjf51v2LJ1atHgNYDq2f0L4A?e=9wDeJ5)
 
-[**DOWNLOAD (100MB, 72min)**](https://drive.google.com/file/d/0B_4_ynm06YZIOF9nRThwLWstaWc/edit?usp=sharing)
+* [**DOWNLOAD (100MB, 72min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LJ1atHgNYDq2f0L4A?e=9wDeJ5)
 
 TRACKLIST:  
 

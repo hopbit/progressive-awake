@@ -5,10 +5,9 @@
 Date: 2009-01-19 23:12  
 Tags: progressive house, tech house  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4cXVpVENxa3JDUkk)](https://drive.google.com/file/d/0B_4_ynm06YZIZ3k4a0w2V21nbXc/edit?usp=sharing)
+[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4cXVpVENxa3JDUkk)](https://1drv.ms/u/s!AmzuuXrjf51v2LIzTuC3xmm-km9YNg?e=L9sCng)
 
-<!-- DOWNLOAD LINK -->
-[**DOWNLOAD (100MB, 1h 48min)**](https://drive.google.com/file/d/0B_4_ynm06YZIZ3k4a0w2V21nbXc/edit?usp=sharing)
+* [**DOWNLOAD (100MB, 1h 48min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LIzTuC3xmm-km9YNg?e=L9sCng)
 
 TRACKLIST:  
 
