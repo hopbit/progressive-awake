@@ -8,7 +8,7 @@ Tags:  progressive house, tech house
 [![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4VThGeHNLb2hwNjg)](https://www.mixcloud.com/progressiveawake/midgard-may-2009/)
 
 * [**Listen on MIXCLOUD (64min)**](https://www.mixcloud.com/progressiveawake/midgard-may-2009/)
-* [**DOWNLOAD (60MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LJImImzUwMnG3KUBA?e=ocnq6L)
+* [**Download MP3 (60MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LJImImzUwMnG3KUBA?e=ocnq6L)
 
 **TRACKLIST**  
 
