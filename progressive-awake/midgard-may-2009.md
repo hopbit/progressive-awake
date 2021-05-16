@@ -2,14 +2,15 @@
 
 ----
 
-Date: 2009-05-16 23:18  
+Date: 2009-05-16
 Tags:  progressive house, tech house  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4VThGeHNLb2hwNjg)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIQ2ZXOGZlLUJEcE0)
+[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4VThGeHNLb2hwNjg)](https://www.mixcloud.com/progressiveawake/midgard-may-2009/)
 
-[**DOWNLOAD (60MB, 64min)**](https://drive.google.com/file/d/0B_4_ynm06YZIQ2ZXOGZlLUJEcE0/edit?usp=sharing)
+* [**Listen on MIXCLOUD (64min)**](https://www.mixcloud.com/progressiveawake/midgard-may-2009/)
+* [**DOWNLOAD (60MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LJImImzUwMnG3KUBA?e=ocnq6L)
 
-TRACKLIST:  
+**TRACKLIST**  
 
 * niklas gustavsson – ripple (original mix)
 * dinka – chemistry (original mix)
