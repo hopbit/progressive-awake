@@ -5,12 +5,10 @@
 Date: 2015-06-16    
 Tags: progressive house, indie dance, nu disco, tech house, deep house, electronica    
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4ZWdYeFZ0dVZ3T3M)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4QnV5RDhlQmFxNzA)
+[![Progressive Awake](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/c/7/2/8/51fd-b617-4dbc-94f5-7696dc9bf90d.jpg)](http://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)
 
-[LISTEN @ MIXCLOUD](http://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)
-
-
-[**DOWNLOAD (159MB, 69min)**](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4QnV5RDhlQmFxNzA)
+* **[Listen on MIXCLOUD](http://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)**
+* **[Download MP3(159MB)](https://1drv.ms/u/s!AmzuuXrjf51v2LMEsjw_jud9W4pgmQ?e=OMZdHV)**
 
 Tracklist:  
 
