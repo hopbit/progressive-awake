@@ -5,9 +5,10 @@
 Date: 2018-06-19  
 Tags: *#deep* *#progressive* *#melodic* *#house* *#techno*    
   
-[![Progressive Awake - New Time, New Place (June 2018)](progressive_awake_-_new_time_new_place_june_2018_400x400.jpg)](https://www.mixcloud.com/progressiveawake/new-time-new-place-june-2018/)  
-* [**LISTEN @ MIXCLOUD**](https://www.mixcloud.com/progressiveawake/new-time-new-place-june-2018/)  
-* [**DOWNLOAD (148MB, 1h 4min)**](https://docs.google.com/uc?id=11uRygrA-NGSJDh6bdVd1Z3hVG39rS7dh&export=download) 
+[![Progressive Awake - New Time, New Place (June 2018)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/3/6/a/3/1c5c-1518-47df-860a-d645aa4d5d08)](https://www.mixcloud.com/progressiveawake/new-time-new-place-june-2018/)  
+
+* [**Listen on MIXCLOUD (64 min)**](https://www.mixcloud.com/progressiveawake/new-time-new-place-june-2018/)  
+* [**Download MP3 (148MB, 1h 4min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LMOL5M5N-xJ-9JW1w?e=piK7MZ) 
 
 **Tracklist:**  
  
