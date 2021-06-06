@@ -5,9 +5,10 @@
 Date: 2008-06-01 23:22  
 Tags:  electro house, progressive house, tech house  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4WG1POHVGU3o1OTQ)](https://docs.google.com/uc?id=0B1aIvu0NI6o4eVF6ZVYwWVhsdkk&export=download)
+[![Progressive Awake](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/7/6/2/8/9052-01b9-4bd9-b48d-a6110cec878a)](https://www.mixcloud.com/progressiveawake/its-in-my-soul-june-2008/)
 
-[**DOWNLOAD LINK (71MB, 1h 2min)**](https://docs.google.com/uc?id=0B1aIvu0NI6o4eVF6ZVYwWVhsdkk&export=download)
+* [**Listen on MIXCLOUD (62min)**](https://www.mixcloud.com/progressiveawake/its-in-my-soul-june-2008/)
+* [**Download MP3 (71MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LISHaczUR1KVbJG0A?e=sg6TsD)
 
 
 TRACKLIST:  
