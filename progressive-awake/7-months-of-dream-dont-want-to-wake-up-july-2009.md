@@ -3,11 +3,12 @@
 ----
 
 Date: 2009-07-15    
-Tags:  progressive house, progressive trance, tech house     
+Tags: **#house** **#progressivehouse** **#progressivetrance** **#techhouse**
 
 [![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4TmFrbEJlTjBWM1E)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIcVRtaHRmNTU1MkE)
 
-[**DOWNLOAD (83MB, 60min)**](https://drive.google.com/file/d/0B_4_ynm06YZIcVRtaHRmNTU1MkE/edit?usp=sharing)
+* [**Listen on MIXCLOUD (60min)](https://www.mixcloud.com/upload/progressiveawake/7-months-of-dream-july-2009/complete/)
+* [**Download MP3 (83MB)**](https://drive.google.com/file/d/0B_4_ynm06YZIcVRtaHRmNTU1MkE/edit?usp=sharing)
 
 TRACKLIST:  
 
