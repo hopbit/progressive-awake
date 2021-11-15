@@ -4,8 +4,8 @@
 
 # Sets
 
-* [Somebody New Vol. 3](./somebody-new-vol-3-november-2021.md)
-* [**Bit Harder (April 2021)**](./progressive-awake/bit-harder-april-2021.md)
+* [**Somebody New Vol. 3**](./somebody-new-vol-3-november-2021.md)
+* [Bit Harder (April 2021)](./progressive-awake/bit-harder-april-2021.md)
 * [Hypnotized By Your Light (February 2021)](./progressive-awake/hypnotized-by-your-light-february-2021.md)
 * [The Blue Oyster (January 2021)](./progressive-awake/the-blue-oyster-january-2021.md)
 * [New Time, New Place (June 2018)](./progressive-awake/new-time-new-place-june-2018.md)
