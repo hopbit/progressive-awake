@@ -7,7 +7,8 @@ Tags: *#tech* *#melodic* *#progressive* *#house* *#techno*
 
 ----
 
-[![La Playa (July 2020)]https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/6/6/a/9/6b5a-c304-42cb-8046-d200a1fd8911)](https://www.mixcloud.com/progressiveawake/la-playa-july-2020/)  
+[![La Playa (July 2020)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/6/6/a/9/6b5a-c304-42cb-8046-d200a1fd8911)](https://www.mixcloud.com/progressiveawake/la-playa-july-2020/)  
+
 
 ----
 
