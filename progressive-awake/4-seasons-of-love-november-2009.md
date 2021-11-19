@@ -5,8 +5,9 @@
 Date: 2009-11-15    
 Tags: progressive house, tech house.    
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4NXFvWXdfWEJUdG8)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIWUF1ZVVBdklhUkE)
+[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4NXFvWXdfWEJUdG8)](https://www.mixcloud.com/progressiveawake/4-seasons-of-love-november-2009/)
 
+[**Listen on MIXCLOUD](https://www.mixcloud.com/progressiveawake/4-seasons-of-love-november-2009/)
 [**DOWNLOAD (79MB, 58min)**](https://drive.google.com/file/d/0B_4_ynm06YZIWUF1ZVVBdklhUkE/edit?usp=sharing)
 
 TRACKLIST:  
