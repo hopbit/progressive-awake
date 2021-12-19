@@ -4,7 +4,7 @@
 
 # Sets
 
-* [**Lullaby (December 2021)**](./progressive-awake/lullaby-december-2021.md.md)
+* [**Lullaby (December 2021)**](./progressive-awake/lullaby-december-2021.md)
 * [Somebody New Vol. 3 (November 2021)](./progressive-awake/somebody-new-vol-3-november-2021.md)
 * [Bit Harder (April 2021)](./progressive-awake/bit-harder-april-2021.md)
 * [Hypnotized By Your Light (February 2021)](./progressive-awake/hypnotized-by-your-light-february-2021.md)
