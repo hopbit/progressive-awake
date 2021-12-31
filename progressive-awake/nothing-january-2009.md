@@ -5,9 +5,10 @@
 Date: 2009-01-19 23:12  
 Tags: progressive house, tech house  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4cXVpVENxa3JDUkk)](https://1drv.ms/u/s!AmzuuXrjf51v2LIzTuC3xmm-km9YNg?e=L9sCng)
+[![Progressive Awake](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/d/2/d/f/7a93-8388-4eda-85b3-ba9242ace4fc)](https://www.mixcloud.com/progressiveawake/nothing-january-2009/)
 
-* [**DOWNLOAD (100MB, 1h 48min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LIzTuC3xmm-km9YNg?e=L9sCng)
+* [**Listen on MIXCLOUD (1h 48min)**](https://www.mixcloud.com/progressiveawake/nothing-january-2009/)
+* [**Download MP3 (99MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LIzTuC3xmm-km9YNg?e=L9sCng)
 
 TRACKLIST:  
 
@@ -32,8 +33,8 @@ TRACKLIST:
 * glenn morrison – no sudden moves (original mix)
 * morgan page ft. lissie – the longest road (deadmau5 remix)
 
-All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
-Enjoy.
+Enjoy & support artists by buying their music or by listening on  
+[Spotify](https://open.spotify.com/user/hopbit/playlist/2t2d8XXigBzIN9VVOZUTm6?si=Xq1rzbIOSISla_sx27XGnQ).
 
 ----
 
